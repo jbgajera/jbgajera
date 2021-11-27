@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Everything Designing**
 
-- 📫 How to reach me **https://jaygajera.live/**
+- 📫 How to reach me  [🌐](https://jaygajera.live/) \
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
